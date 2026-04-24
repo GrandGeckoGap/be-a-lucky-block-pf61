@@ -1,4 +1,4 @@
-
+be a lucky block Script new is the best be a lucky block Script, featuring fly and auto-sell. Safe and powerful for all your needs.
 
 
 
